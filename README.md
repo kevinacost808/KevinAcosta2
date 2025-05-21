@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓V ciclo de Ingeniería de Sistemas e Informática<br>👨‍💻Programación<br>🤝Trabajo en equipo<br>👀18 años
+🎓IX ciclo de Ingeniería de Sistemas e Informática<br>👨‍💻Programación<br>🤝Trabajo en equipo<br>👀20 años
 
 
 ## 🌐 Socials:
